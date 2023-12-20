@@ -46,4 +46,4 @@ This project is licensed under the MIT License.
 
 If you have any questions or suggestions, feel free to contact us at [jprabhat25@gmail.com].
 
-Happy diet planning! 🥗🏋️‍♂️
+Happy  diet planning! 🥗🏋️‍♂️
